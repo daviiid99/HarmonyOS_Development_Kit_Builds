@@ -1,1 +1,1 @@
-<img src="https://elrincondechina.com/wp-content/uploads/2019/12/huawei-harmonyos-hamorny-os-logo.jpg">
+<img src="https://media.pasionmovil.com/2019/12/c4b56b46-huawei-harmony-os.jpg">
